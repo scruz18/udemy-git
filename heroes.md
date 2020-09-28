@@ -8,4 +8,5 @@
 -   Robin
 -   Volcán Negro
 -   Salvador
--   Y
+-   Yaoska la Lorente
+-   Francys la Mamá
